@@ -8,7 +8,7 @@ The first piece of technology that I owned was a cell phone
 
 My hometown is Chicago
 
-My current personal interests involve building websites 
+My current personal interests involve building websites and theocratic activities.
 
 People can reach me using my email fdrodriguezgarcia@cps.edu
 
